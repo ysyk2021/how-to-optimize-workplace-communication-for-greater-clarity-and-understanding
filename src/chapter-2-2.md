@@ -1,5 +1,3 @@
-The Benefits of Effective Workplace Communication
-==============================================================================================
 
 Effective workplace communication is essential for the success of any organization. In this chapter, we will define workplace communication and explore the benefits of effective communication.
 

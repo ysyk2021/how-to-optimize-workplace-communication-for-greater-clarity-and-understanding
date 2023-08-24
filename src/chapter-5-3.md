@@ -1,5 +1,3 @@
-Using Appropriate Tone and Style
-=============================================================================
 
 Written communication is a critical component of workplace communication, but it's important to use an appropriate tone and style to maximize its effectiveness. In this chapter, we will explore strategies for using an appropriate tone and style in written communication.
 

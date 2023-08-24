@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Workplace Communication on Business Success
-====================================================================
 
 Workplace communication is a key factor in determining the success of an organization. In this chapter, we will explore the impact of workplace communication on business success and the costs of poor communication.
 

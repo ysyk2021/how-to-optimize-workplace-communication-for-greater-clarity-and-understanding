@@ -1,5 +1,3 @@
-Chapter 4: Maximizing Written Communication
-===========================================
 
 Written communication is a crucial part of workplace communication, from emails and memos to reports and presentations. In this chapter, we will explore strategies for maximizing written communication for greater clarity and understanding.
 

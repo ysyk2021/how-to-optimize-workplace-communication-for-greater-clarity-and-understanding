@@ -1,5 +1,3 @@
-Preparing for Difficult Conversations
-====================================================================================
 
 Difficult conversations are a common occurrence in the workplace, and they can be challenging to navigate. In this chapter, we will explore strategies for preparing for difficult conversations to promote greater clarity and understanding.
 

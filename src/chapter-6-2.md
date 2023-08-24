@@ -1,5 +1,3 @@
-Managing Emotions During Difficult Conversations
-===============================================================================================
 
 Difficult conversations are an inevitable part of workplace communication, and they can be emotionally charged. In this chapter, we will explore strategies for managing emotions during difficult conversations to promote greater clarity and understanding.
 

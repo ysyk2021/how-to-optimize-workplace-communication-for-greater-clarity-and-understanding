@@ -1,5 +1,3 @@
-Finding Common Ground and Resolution
-===================================================================================
 
 Difficult conversations are a part of workplace communication, and learning to navigate them effectively is essential for promoting clarity and understanding. In this chapter, we will explore strategies for finding common ground and resolution in difficult conversations.
 

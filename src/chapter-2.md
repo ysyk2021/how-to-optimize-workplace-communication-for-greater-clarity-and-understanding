@@ -1,5 +1,3 @@
-Chapter 1: Defining Workplace Communication
-===========================================
 
 Workplace communication is a vital component of organizational success. In this chapter, we will define workplace communication, explore its benefits, and examine examples of successful workplace communication in practice.
 

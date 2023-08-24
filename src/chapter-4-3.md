@@ -1,5 +1,3 @@
-Communicating with Empathy and Respect
-=================================================================================
 
 Effective workplace communication is not just about conveying information and ideas clearly, but also about communicating with empathy and respect. In this chapter, we will explore strategies for improving verbal communication through empathetic and respectful communication.
 

@@ -1,5 +1,3 @@
-Chapter 5: Navigating Difficult Conversations
-=============================================
 
 Difficult conversations are a necessary part of workplace communication, but they can be challenging to navigate. In this chapter, we will explore strategies for navigating difficult conversations for greater clarity and understanding.
 

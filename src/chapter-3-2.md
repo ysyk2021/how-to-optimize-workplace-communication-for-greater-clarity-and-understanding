@@ -1,5 +1,3 @@
-The Costs of Poor Workplace Communication
-===============================================================================================================
 
 Effective workplace communication is essential for organizational success, but poor communication can have significant costs. In this chapter, we will explore the costs of poor workplace communication.
 

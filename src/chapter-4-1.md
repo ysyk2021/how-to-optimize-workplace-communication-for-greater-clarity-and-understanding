@@ -1,5 +1,3 @@
-Enhancing Active Listening Skills
-============================================================================
 
 Active listening is a critical component of effective workplace communication. In this chapter, we will explore strategies for enhancing active listening skills to promote greater clarity and understanding.
 

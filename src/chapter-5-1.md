@@ -1,5 +1,3 @@
-Writing Clearly and Concisely
-==========================================================================
 
 Written communication is a critical component of workplace communication, and the ability to write clearly and concisely is essential for effective communication. In this chapter, we will explore strategies for maximizing written communication through clear and concise writing.
 

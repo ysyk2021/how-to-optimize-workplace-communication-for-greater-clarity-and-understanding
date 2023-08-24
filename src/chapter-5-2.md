@@ -1,5 +1,3 @@
-Formatting Written Communication for Readability
-=============================================================================================
 
 Written communication is a critical component of workplace communication, but it's important to format the communication for readability. In this chapter, we will explore strategies for formatting written communication for maximum readability.
 

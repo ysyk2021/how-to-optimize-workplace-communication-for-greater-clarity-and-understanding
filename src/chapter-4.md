@@ -1,5 +1,3 @@
-Chapter 3: Improving Verbal Communication
-=========================================
 
 Verbal communication is a fundamental part of workplace communication, from team meetings to one-on-one conversations. In this chapter, we will explore strategies for improving verbal communication for greater clarity and understanding.
 

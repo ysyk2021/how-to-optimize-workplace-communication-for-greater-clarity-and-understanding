@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Effective Workplace Communication
-=====================================================================================================
 
 Effective workplace communication is essential for organizational success, and leadership plays a critical role in supporting and promoting effective communication. In this chapter, we will explore the role of leadership in supporting effective workplace communication.
 

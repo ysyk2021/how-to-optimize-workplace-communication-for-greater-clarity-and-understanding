@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As workplaces continue to evolve and change, it is important to consider the future of workplace communication and how it can be optimized for greater clarity and understanding. In this chapter, we will explore some potential future directions for workplace communication.
 

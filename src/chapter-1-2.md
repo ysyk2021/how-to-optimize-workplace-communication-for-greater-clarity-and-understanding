@@ -1,5 +1,3 @@
-Overview of Workplace Communication
-=================================================
 
 Effective workplace communication is essential for the success of any organization. It involves the exchange of information and ideas between employees, and encompasses all forms of communication, including verbal, written, and nonverbal cues.
 

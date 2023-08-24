@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Effective workplace communication requires support from leadership to create a culture that values clear and open communication. In this chapter, we will explore the role of leadership in supporting effective workplace communication.
 

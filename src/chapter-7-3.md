@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Workplace Communication Strategies
-============================================================================================
 
 Implementing effective workplace communication strategies is essential for organizational success, but it's also important to measure the effectiveness of these strategies. In this chapter, we will explore strategies for measuring the effectiveness of workplace communication strategies.
 

@@ -1,5 +1,3 @@
-Using Clear and Concise Language
-===========================================================================
 
 Clear and concise language is essential for effective verbal communication in the workplace. In this chapter, we will explore strategies for improving verbal communication by using clear and concise language.
 

@@ -1,5 +1,3 @@
-Modeling Effective Communication Behaviors
-=========================================================================
 
 Leadership plays an important role in promoting effective workplace communication. One of the most important ways that leaders can support effective communication is by modeling effective communication behaviors. In this chapter, we will explore strategies for leaders to model effective communication behaviors in the workplace.
 

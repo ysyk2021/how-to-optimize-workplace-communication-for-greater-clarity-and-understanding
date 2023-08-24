@@ -1,5 +1,3 @@
-Understanding the Impact of Workplace Communication on Business Success
-=============================================================================================================================================
 
 Workplace communication has a significant impact on the success of any business. In this chapter, we will explore the ways in which workplace communication can impact business success.
 

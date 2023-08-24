@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Effective workplace communication requires the implementation of strategies and techniques that promote greater clarity and understanding. In this chapter, we will explore how to implement these techniques and overcome barriers to effective implementation.
 

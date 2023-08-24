@@ -1,5 +1,3 @@
-Examples of Successful Workplace Communication in Practice
-=======================================================================================================
 
 Effective workplace communication is essential for the success of any organization. In this chapter, we will explore examples of successful workplace communication in practice.
 
