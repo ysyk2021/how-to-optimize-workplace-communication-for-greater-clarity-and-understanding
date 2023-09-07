@@ -8,3 +8,7 @@ Throughout the book, we will provide practical tips and techniques for optimizin
 By understanding how to optimize workplace communication, readers can improve their communication skills, build stronger relationships with colleagues, and achieve greater clarity and understanding in the workplace. Whether you are a manager seeking to improve communication among your team or an individual seeking to enhance your own communication skills, this book will provide valuable insights and strategies for success in the workplace.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
