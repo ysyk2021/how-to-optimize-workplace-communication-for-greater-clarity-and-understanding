@@ -1,5 +1,4 @@
-Chapter 5: Writing Clearly and Concisely
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication hinges on the ability to convey information clearly and concisely. This chapter explores strategies for crafting written messages that are easily understood and leave no room for ambiguity.
 

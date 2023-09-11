@@ -1,5 +1,4 @@
-Chapter 12: Using Clear and Concise Language
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of using clear and concise language in workplace communication. Clear and concise communication is a fundamental skill that contributes significantly to greater clarity and understanding among team members.
 

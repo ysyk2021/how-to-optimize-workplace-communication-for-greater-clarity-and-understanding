@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Barriers to Effective Implementation
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to optimize workplace communication for greater clarity and understanding, various barriers can impede progress. This chapter will address common challenges that individuals and organizations may face when implementing communication improvements and strategies to overcome them.
 

@@ -1,5 +1,4 @@
-Chapter 3: The Risks of Miscommunication and Misunderstanding
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication is not only about conveying information; it's also about avoiding the risks associated with miscommunication and misunderstanding. In this chapter, we explore the potential consequences of communication breakdowns and the importance of mitigating these risks.
 

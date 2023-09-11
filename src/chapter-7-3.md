@@ -1,5 +1,4 @@
-Chapter 12: Measuring the Effectiveness of Workplace Communication Strategies
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively optimizing workplace communication for greater clarity and understanding requires not only implementing strategies but also assessing their impact. In this chapter, we explore methods and metrics for measuring the effectiveness of workplace communication strategies, enabling organizations to continuously refine their approaches.
 

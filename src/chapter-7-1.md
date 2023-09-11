@@ -1,5 +1,4 @@
-Chapter 8: Implementing Techniques for Optimizing Workplace Communication for Greater Clarity and Understanding
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into practical techniques and strategies that individuals and organizations can implement to optimize workplace communication, ultimately leading to greater clarity and understanding among team members.
 

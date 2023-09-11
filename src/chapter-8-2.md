@@ -1,5 +1,4 @@
-Chapter 5: Modeling Effective Communication Behaviors
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication is not only about the tools and strategies; it's also about the behaviors and attitudes of individuals within the organization. In this chapter, we will explore how modeling effective communication behaviors can have a profound impact on promoting clarity and understanding in the workplace.
 

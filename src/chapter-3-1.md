@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Impact of Workplace Communication on Business Success
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication is not just a tool for conveying information; it is a critical driver of business success. In this chapter, we will explore how workplace communication impacts various aspects of an organization's success and why it should be a top priority for every business.
 

@@ -1,5 +1,4 @@
-Chapter 6: Innovations in Optimizing Workplace Communication
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our ever-evolving digital age, workplace communication is constantly changing and adapting to new technologies and trends. This chapter explores innovative approaches and technologies that can be leveraged to optimize workplace communication for greater clarity and understanding.
 

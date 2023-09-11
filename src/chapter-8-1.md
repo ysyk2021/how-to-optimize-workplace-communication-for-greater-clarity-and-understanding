@@ -1,5 +1,4 @@
-Chapter 6: The Role of Leadership in Supporting Effective Workplace Communication
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership plays a pivotal role in shaping the culture and effectiveness of workplace communication. In this chapter, we will explore the crucial role of leaders in fostering an environment of clear and understanding communication.
 

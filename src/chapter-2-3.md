@@ -1,5 +1,4 @@
-Chapter 7: Examples of Successful Workplace Communication in Practice
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-world examples of successful workplace communication. These examples illustrate how effective communication practices can lead to greater clarity and understanding in various workplace scenarios.
 

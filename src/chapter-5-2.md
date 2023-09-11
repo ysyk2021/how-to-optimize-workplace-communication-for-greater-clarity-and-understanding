@@ -1,5 +1,4 @@
-Chapter 7: Formatting Written Communication for Readability
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In an era of digital communication, written messages in the workplace have become more prevalent. From emails to reports, how these messages are formatted plays a pivotal role in ensuring the receiver understands the content. This chapter will provide insights into how to format written communication to enhance its readability, ensuring clarity and effective understanding.
 

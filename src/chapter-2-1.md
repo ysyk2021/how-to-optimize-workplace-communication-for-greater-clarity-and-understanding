@@ -1,5 +1,4 @@
-Chapter 1: What is Workplace Communication?
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace communication is the foundation upon which successful organizations are built. It is the lifeblood that flows through the veins of any company, shaping its culture, productivity, and effectiveness. In this chapter, we will explore the fundamental concepts of workplace communication and its role in achieving greater clarity and understanding among team members.
 

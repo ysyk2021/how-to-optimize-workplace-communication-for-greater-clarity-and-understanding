@@ -1,5 +1,4 @@
-Chapter 8: Enhancing Active Listening Skills
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of enhancing active listening skills to improve workplace communication, foster greater clarity, and enhance mutual understanding.
 

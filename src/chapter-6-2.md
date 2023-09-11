@@ -1,5 +1,4 @@
-Chapter 7: Managing Emotions During Difficult Conversations
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for managing emotions effectively during difficult workplace conversations. Emotions often run high in challenging discussions, and learning to navigate them can lead to greater clarity and understanding.
 

@@ -1,5 +1,4 @@
-Chapter 8: Looking Ahead to the Future of a Workforce with Optimized Communication
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The future of the workplace promises exciting changes and opportunities, driven by advancements in technology and evolving societal trends. In this chapter, we explore the vision for a workforce with optimized communication and how organizations can prepare for the challenges and opportunities that lie ahead.
 

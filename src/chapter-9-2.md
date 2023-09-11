@@ -1,5 +1,4 @@
-Chapter 7: Addressing New Challenges in Communication
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As workplace dynamics evolve and technology continues to advance, new challenges in communication emerge. This chapter explores some of the contemporary challenges organizations face in optimizing workplace communication and offers strategies for addressing them effectively.
 

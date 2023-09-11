@@ -1,5 +1,4 @@
-Chapter 3: Using Appropriate Tone and Style
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication not only relies on what is said but also how it is said. In this chapter, we will explore the significance of using an appropriate tone and style in communication to foster greater clarity and understanding in the workplace.
 

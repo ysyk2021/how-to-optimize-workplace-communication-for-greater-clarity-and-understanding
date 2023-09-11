@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Effective Workplace Communication
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective workplace communication is not just a desirable skill; it is a catalyst for success. In this chapter, we will explore the numerous benefits that come from optimizing communication within the workplace. From enhanced productivity to improved job satisfaction, the advantages of clear and effective communication are far-reaching.
 

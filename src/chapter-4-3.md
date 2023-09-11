@@ -1,5 +1,4 @@
-Chapter 11: Communicating with Empathy and Respect
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of communicating with empathy and respect in the workplace. These qualities are essential for fostering a positive and harmonious environment, ultimately leading to greater clarity and understanding among team members.
 

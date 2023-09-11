@@ -1,5 +1,4 @@
-Chapter 4: The Costs of Poor Workplace Communication
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Poor workplace communication can come at a steep price for organizations. In this chapter, we will examine the various costs associated with ineffective communication and why addressing these costs is crucial for optimizing communication in the workplace.
 
